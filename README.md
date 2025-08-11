@@ -1,6 +1,6 @@
-# 👩‍💼 Archana Raj — Senior Content Analyst
+# 👩‍💼 Archana Raj — Senior Fixed Income Analyst
 
-🎯 **Senior Content Analyst** | 📍 Bengaluru  
+🎯 **Senior Fixed Income Analyst** | 📍 Bengaluru  
 💼 Passionate about transforming data into meaningful insights and crafting compelling content strategies.
 
 ---
